@@ -1,2 +1,2 @@
-# frist-rep
+# first-rep
 im the best 
